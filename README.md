@@ -56,3 +56,9 @@ HR departments
 Admin offices in schools/colleges
 Event organizers generating badges
 Corporate teams onboarding new employees
+
+Project report,all data available.
+
+------------FOR FULL PROJECT AND REPORT MESSAGE ON LINKEDIN,GMAIL------------------
+
+
